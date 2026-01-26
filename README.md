@@ -1,4 +1,4 @@
-# DECO*27 – ヒバナ -Reloaded-
+# DECO*27 – ヒバナ -Reloaded-VideoAudio
 
 > **歌詞登録ステータス：同期歌詞あり**
 
